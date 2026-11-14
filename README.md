@@ -1,5 +1,4 @@
-萌鸢阁–探索美好的二次元ACG导航 | 番剧/漫画/游戏/轻小说合集
-萌鸢阁–二次元ACG网址导航站域名发布页
+萌鸢阁–探索美好的二次元ACG导航 域名发布页
 主要域名
 主域名（已封禁弃用）：[https://www.moeyg.top](https://www.moeyg.top)
 主域名：[https://www.moeyg.cn](https://www.moeyg.cn)

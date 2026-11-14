@@ -4,5 +4,3 @@
 主域名：[https://www.moeyg.cn](https://www.moeyg.cn)
 备用域名
 备用域名A：[https://www.tsyouz.top](https://www.tsyouz.top)
-备用域名
-备用域名B：[https://www.tsyyz.top](https://www.tsyyz.top)

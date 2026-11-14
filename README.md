@@ -1,6 +1,10 @@
-域名发布页
+萌鸢阁–探索美好的二次元ACG导航 | 番剧/漫画/游戏/轻小说合集
+萌鸢阁–二次元ACG网址导航站域名发布页
 主要域名
-最新域名（大陆可访问）：[https://www.moeyg.top](https://www.moeyg.top)
-主域名：[https://www.moeyg.top](https://www.moeyg.top)
+主域名（已封禁弃用）：[https://www.moeyg.top](https://www.moeyg.top)
+主域名：[https://www.moeyg.cn](https://www.moeyg.cn)
 备用域名
-备用域名A：[https://www.moeyg.cn](https://www.moeyg.cn)
+备用域名A：[https://www.tsyouz.top](https://www.tsyouz.top))
+备用域名
+备用域名B：[https://www.tsyyz.top](https://www.tsyyz.top)
+反馈邮箱：tsmoeyue@outlook.com
